@@ -42,8 +42,6 @@ $${\color{#C29765}important}$$
 
 [RADQUEERNESS](https://lgbtqia.wiki/wiki/Radqueer) (includes, but not limited to; transrace, transage, and "being" transabled, and xenosatanism.), RACISM (yes, this includes making characters, specifically POC most commonly, much paler than in canon, or you don't support diversity, etc.), you have any, and I mean ***any*** [PARAPHILIC URGES](https://en.wikipedia.org/wiki/Paraphilia) acted upon the said para. (mostly  but not limited to ZOOPHILIA, NECROPHILIA, and PEDOPHILES. there's more.) Also don't interact if you have acted out on DARK SHIPPING and it's similar types, BADLY INFLUENCE PEOPLE on purpose, [BE OVERLY SEXUAL](https://en.wikipedia.org/wiki/Sexual_assault) towards MINORS as an ADULT in ANY ways (includes [CSAM](https://en.wikipedia.org/wiki/Child_pornography) / [CP](https://en.wikipedia.org/wiki/Child_pornography)), [GROOMING](https://en.wikipedia.org/wiki/Sexual_grooming) history in ANY way, HARASSMENT history, you talk about any kind of **serious topics** ([THE EPSTIEN FILES](https://en.wikipedia.org/wiki/Epstein_files), [DIDDY](https://en.wikipedia.org/wiki/Diddy_parties), etc.) **jokingly**. You are a bad person, and I believe you can't change your ways, even if you were mentally ill then, or changed your ways now unless you have valid proof. 
 
-HEAVILY SUSPECTING OSDD-1a SYSTEM, THIS IS WHY I'M TALKING ABOUT PRUSS AND FERRY AS DIFFERENT PEOPLE !!!! we are bodily 14 turning 15
-
 </details>
 
 <p align="center">
