@@ -8,7 +8,7 @@ $${\color{#C29765}\textsf{valentine \quad\ \color{} ou \color{#FBD0BB}\quad\ ame
 
 $${\color{#FBD0BB}\textsf{genderfloy \quad\ \color{#EEC09B}tneumasc \color{#C29865}\quad\ uranic}}$$
 
-$${\color{#FBD0BB}\textsf{he   /  \color{#EEC09B}him \quad\ snow \color{#C29765}/ blood}}$$
+$${\color{#FBD0BB}\textsf{hy /  \color{#EEC09B}hym \quad\ snow \color{#C29765}/ neos}}$$
 
 <p align="center"> 
 
