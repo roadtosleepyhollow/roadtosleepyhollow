@@ -15,12 +15,20 @@ $${\color{#FBD0BB}\textsf{he   /  \color{#EEC09B}him \quad\ snow \color{#C29765}
 <details closed>
 <summary>$${\color{#C29765}\textsf{extended \quad\ \color{#FBD0BB}info}}$$</summary>
 ⠀
-<p align="center">
-<img width = "500" src="https://files.catbox.moe/ukauor.png" alt="67">
+<p align="right">
+<img width="500" src="https://files.catbox.moe/uylacp.png" alt="67">
 
-hi, i'm val!! im 14 turning 15, and I suspect osdd-1a.i am a transgender person since 9  as a fun fact, and I prefer more masculine terms, but feminine can be used if it's not overused.
+$${\color{#C29765}\textsf{byi}}$$
 
-wip
+hi, i'm val! im 14 turning 15, and I suspect osdd-1a. ^_0 i am a transgender person since 9 as a fun fact, and I prefer more masculine terms, but feminine can be used if it's not overused. i go by hy/hym or they/them, maybe even any snow or christmas neos if you'd like. I go by any pronouns, minus feminine-esque ones! (>ω<*) 
+
+I am traumazised. Do not interact if you're over 25 unelss i int first. iwc if you're 19+, and -13. I struggle with pOCD symptoms, and I get worried i might do bad things, as well as grooming history making me have some trust issues. Unless we were friends before, iwc. I struggle with sexual thoughts as well, i don't like mentions of MSI, and i also show (c?) ptsd symptoms. 
+
+when you int with me, be aware i can get triggered. it happens rarely, but it does happen. speaking of, DO NOT INVOLVE ME IN DRAMA/DISCOURSE UNLESS IT'S NEEDED. key word **needed**. It's annoying and potentially triggering. and I prefer not causing another alter to form. 
+
+I am always free to socialise, though I may be a bit distant/zoned out, or have a mood swing if you say something wrong, i am really friendly, just sensitive! :Sweat: be aware though, and always IWC. read my rentry if you need to know any other information, or ask me! always ask me if you need something done, dealt with that includes me, etc. I'll deal with it best i can! I am also direct in talking, i will not censor things unless i know it may make someone uncomfortable. please tell me beforehand.
+
+$${\color{#C29765}\textsf{pony town:}}$$
 
 important :
 
