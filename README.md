@@ -3,8 +3,6 @@
 <img width="850" height="200" src="https://files.catbox.moe/t5yj5v.png" alt="67">
 <p align="center">
 <img height="320" src="https://files.catbox.moe/2we2dg.png" align="left">
-<p align="center">
-<img width= "500" src="https://files.catbox.moe/ukauor.png" alt="67">
    
 $${\color{#F9D0C5}\textsf{prussia \quad\ \color{#9E71A0}oder \quad\ \color{#C996B2}ferryman}}$$
 
