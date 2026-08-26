@@ -24,15 +24,15 @@ hi, i'm val! im 14 turning 15, and I suspect osdd-1a. ^_0 i am a transgender per
 
 I am traumazised. Do not interact if you're over 25 unelss i int first. iwc if you're 19+, and -13. I struggle with pOCD symptoms, and I get worried i might do bad things, as well as grooming history making me have some trust issues. Unless we were friends before, iwc. I struggle with sexual thoughts as well, i don't like mentions of MSI, and i also show (c?) ptsd symptoms. 
 
-when you int with me, be aware i can get triggered. it happens rarely, but it does happen. speaking of, DO NOT INVOLVE ME IN DRAMA/DISCOURSE UNLESS IT'S NEEDED. key word **needed**. It's annoying and potentially triggering. and I prefer not causing another alter to form. 
+when you int with me, be aware i can get triggered very rarely, but it does happen sometimes. speaking of, DO NOT INVOLVE ME IN DRAMA/DISCOURSE UNLESS IT'S NEEDED. key word **needed**. It's annoying and potentially triggering, **depending** on the topics. and I prefer not causing another alter to form. 
 
-I am always free to socialise, though I may be a bit distant/zoned out, or have a mood swing if you say something wrong, i am really friendly, just sensitive! :Sweat: be aware though, and always IWC. read my rentry if you need to know any other information, or ask me! always ask me if you need something done, dealt with that includes me, etc. I'll deal with it best i can! I am also direct in talking, i will not censor things unless i know it may make someone uncomfortable. please tell me beforehand.
+I am always free to socialise, though I may be a bit distant/zoned out, or have a mood swing if you say something wrong, i am really friendly, just sensitive a small bit. :Sweat: be aware though, and always IWC. read my rentry if you need to know any other information, or ask me! always ask me if you need something done, dealt with that includes me, etc. I'll deal with it best i can! I am also direct in talking, i will not censor things unless i know it may make someone uncomfortable. please tell me beforehand.
 
 $${\color{#C29765}pony town}$$
 
 c/h freely, unless i'm with a friend. mainly with [@JAGERHEART](https://github.com/JAGERHEART) / [@ger-ita](https://github.com/ger-ita), and [@solstisGPT](https://github.com/solstisGPT), but it can be someone else occasionally. we are not partners, we are close friends. occasionally with [@whaminac](https://github.com/whamaniac) as well! very beloved people to us all.
 
-I'm not a fan of blocking. If i block you. you are a bad person to me / the sys, or you're problematic. do not contact me if you do find out, *unless you're apologizing directly to me, or you're explaining your past and taking accountability.*
+I'm not a fan of blocking. If i block you. you are a bad person to me / us, or you're problematic. do not contact me if you do find out, *unless you're apologizing directly to me, or you're explaining your past and taking accountability.*
 
 I am friendly to people with similar interests, or people who don't walk up to me with random/annoying intent. it makes me agitated. I am friendly if you want to be my friend, it takes time though. It's worth it i think, i really enjoy my friends.
 
