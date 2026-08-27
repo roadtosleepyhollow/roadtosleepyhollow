@@ -56,7 +56,13 @@ if you have acted out on [DARK SHIPPING](https://fanlore.org/wiki/Darkship) and 
 
 [GROOMING](https://en.wikipedia.org/wiki/Sexual_grooming) history in ANY way (includes but not limited to getting what you want from someone by manipulation, no matter the age. grooming dosent require age, it's just most common that i see.)
 
-you talk about any kind of **serious topics** ([THE EPSTIEN FILES](https://en.wikipedia.org/wiki/Epstein_files), [DIDDY](https://en.wikipedia.org/wiki/Diddy_parties), etc.) **jokingly**. You are a bad person, and I believe you can't change your ways, even if you were mentally ill then, or changed your ways now unless you have valid proof. 
+you talk about any kind of **serious topics** ([THE EPSTIEN FILES](https://en.wikipedia.org/wiki/Epstein_files), [DIDDY](https://en.wikipedia.org/wiki/Diddy_parties), etc.) **jokingly**. 
+
+You are a bad person, and I believe you can't change your ways, even if you were mentally ill then, or changed your ways now unless you have valid proof, if you do/are any of the above.
+
+  main: [@roadtosleepyhollow](https://github.com/roadtosleepyhollow)
+  
+  alt: [@bloody-tea](https://github.com/bloody-tea), [@prussiaa](https://github.com/prussiaa)
 
 </details>
 
