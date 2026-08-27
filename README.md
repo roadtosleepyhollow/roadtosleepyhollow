@@ -18,6 +18,8 @@ $${\color{#FBD0BB}\textsf{hy /  \color{#EEC09B}they \quad\ snow \color{#C29765}/
 <p align="right">
 <img width="500" src="https://files.catbox.moe/uylacp.png" alt="67">
 
+[![Hits](https://hits.sh/github.com/RadioheadLover/hits.svg?style=plastic&label=my%20beloved%20has%20died...&color=9C7A51&labelColor=e7c6ba)](https://hits.sh/github.com/RadioheadLover/hits/)
+
 $${\color{#C29765}byi}$$
 
 hi, i'm val! i'm a minor, bday aug 29 2011, and I suspect plurality. I show a lot of symptoms. i am a transgender person since 9 as a fun fact, and I prefer more masculine terms, but feminine can be used if it's not overused. i go by hy/hym or they/them, maybe even any snow or Christmas neos if you'd like. I go by any pronouns, minus feminine-esque ones! they make me a bit uncomfortable if used too much, or you're talkign about me like a bully then. (>ω<*) 
