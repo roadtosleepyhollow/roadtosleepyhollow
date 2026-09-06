@@ -20,19 +20,19 @@ $${\color{#FBD0BB}\textsf{hy /  \color{#EEC09B}they \quad\ snow \color{#C29765}/
 
 $${\color{#C29765}byi}$$
 
-hi, i'm val! i'm a minor, bday aug 29 2011. i am a transgender person since 9 as a fun fact, and I prefer more masculine terms, but feminine can be used if it's not overused. i go by hy/hym or they/them, maybe even any snow or Christmas neos if you'd like. I go by any pronouns, minus feminine-esque ones! they make me a bit uncomfortable if used too much, or you're talkign about me like a bully then. (>ω<*) 
+hi, i'm val, markus, glory, or whatever u wanna call me. i go by hy/they/it or feminine pronouns when I feel happy. I am a minor who's 15, i am genderfloy, mlm, lithromantic, and transneumasc. I suspect some kind of dissociative disorder, but I won't go into details
 
-I am friendly to people with similar interests, with the same typing style, moods, or people who don't walk up to me with random/annoying intent. it makes me agitated. I am friendly if you want to be my friend, it takes time though. though, be patient. i'm dumb after all and slowly recovering from narcissistic, clingy, hypocritical, lying, angry behaviors, and trying to become a better person. it's just a slow process. just please let me know if i'm doing any wrongs, it'll help with recovery.
+I'm friendly to people who know me well enough, have similar interests/typing styles, friends of friends, or anyone willing to not piss me off and be kind to me :) I am a little bit bad with boundaries, it's not too severe recently, I try my best to censor myself near others, but I am blunt by nature a lot of the time if i'm mad, and I am self centered, a lot. Please tell me if i'm talking about myself too much, but I am better at socializing now than in the past, luckily :)
 
-i am a yumeshipper, I ship myself with Karl from Guts and Blackpowder. He is my beloved, and he is my only lover! I am voidsharing. Doubles dni if you're going to talk about him romantically, if not, normally interact. (an example is familial yumeshipping, no darkshipping.) i am protective of my baby!  <3 3/12/26 <3
+If you want to apologize to me directly, or you want me to own up to things, and if i recognize your discord, add me at @roadtosleepyhollow. If not, contact my atabook, do it anyways if you're gonna friend me for anything and you don't see me in pony town, my main account is private unless we are close! !!DO NOT INVOLVE ME IN DRAMA/DISCOURSE UNLESS IT'S NEEDED!! key word **needed**!! It's annoying and potentially stress inducing, ***heavily depending*** on the topics.
 
-I am traumatized a bit. Do not interact if you're over 25 unless i int first. iwc if you're 19+, and -13 unless friend beforehand. I get worried i might do bad things, as well as being a victim of bad things making me have some trust issues with people, unless we were friends before. I struggle with thoughts a lot, i don't like mentions of MSI or any rock band related, and i also show memory issues.
+DO NOT COPY ME!!!!!!!!!!!!!!!!!!! DO NOT COPY ME WHATSOEVER. DOUBLES OF MY KINS DNIUID/CLOSE. DOUBLES OF ANY KIND DNIUID/CLOSE. PLEASE DON'T COPY. THIS HAS HAPPENED MULTIPLE TIMES. **I DO NOT WANT TO BE LOOKED UP TO, I AM A WORSE PERSON NOW THAN IN THE FUTURE, I DON'T WANT TO RISK ANYTHING. DO NOT LOOK UP TO ME, COPY MY FAVORITES, TRY NOT TO TAKE HEAVY INSPO/COPY AVATARS/PONIES UNLESS YOU ASK!!!** Many more, but those are most common i #experience. It's weird
 
-when you int with me, be aware i can get triggered very rarely, but it does happen. speaking of, DO NOT INVOLVE ME IN DRAMA/DISCOURSE UNLESS IT'S NEEDED. key word **needed**. It's annoying and potentially triggering, ***heavily depending*** on the topics. and I prefer not causing another breakdown. Better safe than sorry. am i right or am i right
+i am a yumeshipper, I ship myself with Karl from Guts and Blackpowder. He is my beloved, and he is my only lover! I am voidsharing. Doubles dni, along with canada (hetalia), diamondback (both elite and basic) ((bloons tower defense 6)), and american ferryman (guts and blackpowder)! (all minus karl are nonsharing)
 
-I am always free to socialise, though I may be a bit distant/zoned out, or have a mood swing if you say something wrong, i am really friendly, just sensitive a small bit. :Sweat: be aware though, and always IWC. read my rentry if you need to know any other information, or ask me! I'll answer best i can! I am also direct in talking, i will not censor things unless i know it may make someone uncomfortable, please tell me beforehand
+I am traumatized a bit. Do not interact if you're over 25 unless i int first. iwc if you're 19+, and -13 unless friend beforehand. I get worried i might do bad things, as well as being a victim of bad things making me have some trust issues with people. I struggle with thoughts and memory issues a lot, i don't like mentions of MSI, someone cursing/slurring unless close, or whatever. spoil anything overly sexual/harm inducing if it's important in the conversation, saves me from being weirded out
 
-DO NOT COPY ME!!!!!!!!!!!!!!!!!!! DO NOT COPY ME WHATSOEVER. DOUBLES OF MY KINS DNIUID/CLOSE. DOUBLES OF ANY KIND DNIUID/CLOSE. PLEASE DON'T COPY. THIS HAS HAPPENED MULTIPLE TIMES. I DO NOT WANT TO BE LOOKED UP TO, I AM A WORSE PERSON NOW THAN IN THE FUTURE, I DON'T WANT TO RISK ANYTHING. **DO NOT LOOK UP TO ME, COPY MY FAVORITES, TRY NOT TO TAKE HEAVY INSPO/COPY AVATARS/PONIES UNLESS YOU ASK!!!** Many more, but those are most common i #experience. It's weird. 
+I am always free to socialise, though I may be a bit distant/zoned out, or mood swings may happen, i am really friendly, just sensitive a small bit. :Sweat: be aware though, and always IWC. read my rentry if you need to know any other information, or ask me! I'll answer best i can! I am also direct in talking, i will not censor things unless i know it may make someone uncomfortable, please tell me beforehand
 
 $${\color{#C29765}pony town}$$
 
@@ -41,6 +41,8 @@ c/h freely, unless i'm with a friend, unless you ask us both. mainly with [@JAGE
 I'm not a fan of blocking. If i block you. you are a bad person to me / us, or you're problematic. do not contact me if you do find out, *unless you're apologizing directly to me, or you're explaining your past and taking accountability.*
 
 I'm asleep/offtab on pony town a lot, so expect me to be on stuff like among us, roblox, minesweeper, ibispaint, krita, etc. whisper to interact, as i won't likely see your message if it's in public chats. greatly appreciated.
+
+DNI DNI KARL UNLESS YPU WANT TO OWN UP TO YOUR SEXUAL TALK AND OTHER BAD THINGS. PLEASE. YOU BASICALLY TRAUMATIZED ME SLOWLY. /very heavily targeted towards a certain someone who has been #weeirdd toward me and my "moods".
 
 $${\color{#C29765}important}$$
 
