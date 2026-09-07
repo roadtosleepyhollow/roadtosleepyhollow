@@ -71,7 +71,7 @@ You are a bad person, and I believe you can't change your ways, even if you were
 </details>
 
 <p align="center">
-  <i><a href="https://rentry.co/boat-explosion">rentry</a></i> <i><a href="https://pronouns.cc/@bloodytea">prns.cc</a></i> <i><a href="https://bloodytea.atabook.org/">新book</a></i>
+  <i><a href="https://fluffle.cc/boat-explosion">fluffle</a></i> <i><a href="https://pronouns.cc/@bloodytea">prns.cc</a></i> <i><a href="https://bloodytea.atabook.org/">新book</a></i>
 </p>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jqi4ggf3dxjk4qpg6p4deelgim&cover_image=false&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=7F6751&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
