@@ -66,7 +66,7 @@ You are a bad person, and I believe you can't change your ways, even if you were
 
   main: [@roadtosleepyhollow](https://github.com/roadtosleepyhollow)
   
-  alt: [@bloody-tea](https://github.com/bloody-tea), [@prussiaa](https://github.com/prussiaa)
+  alt: [@bloody-tea](https://github.com/bloody-tea), [@engineer-monkey](https://github.com/engineer-monkey)
 
 </details>
 
