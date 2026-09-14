@@ -4,23 +4,21 @@
 <p align="center">
 <img height="320" src="https://files.catbox.moe/6vp7o7.png" align="right">
    
-$${\color{#C29765}\textsf{valentine \quad\ \color{} ou \color{#FBD0BB}\quad\ america}}$$
+$${\color{#C29765}\textsf{valentine ou ferry}}$$
 
-$${\color{#FBD0BB}\textsf{genderfloy \quad\ \color{#EEC09B}transneumasc \color{#C29865}\quad\ uranic}}$$
-
-$${\color{#FBD0BB}\textsf{hy /  \color{#EEC09B}they \quad\ snow \color{#C29765}/ neos}}$$
+$${\color{#FBD0BB}\textsf{genderfloy mlm}}$$
 
 <p align="center"> 
 
 <details closed>
-<summary>$${\color{#C29765}\textsf{extended \quad\ \color{#FBD0BB}info}}$$</summary>
+<summary>$${\color{#C29765}\textsf{extended}}$$</summary>
 ⠀
 <p align="right">
 <img width="500" src="https://files.catbox.moe/uylacp.png" alt="67">
 
-$${\color{#C29765}byi}$$
+$${\color{#C29765}\textsf{byi}}$$
 
-hi, i'm val, markus, glory, or whatever u wanna call me. i go by hy/they/it or feminine pronouns when I feel happy. I am a minor who's 15, i am genderfloy, mlm, lithromantic, and transneumasc. I suspect some kind of dissociative disorder, but I won't go into details
+hi, i'm val, markus, glory, or whatever u wanna call me. i go by hy/they/it or feminine pronouns when I feel happy. I am a minor who's 15, i am genderfloy, mlm, lithromantic, and transneumasc. I suspect some kind of dissociative disorder, but I won't go into details. less updated more recently due to laptop breaking.
 
 I'm friendly to people who know me well enough, have similar interests/typing styles, friends of friends, or anyone willing to not piss me off and be kind to me :) I am a little bit bad with boundaries, it's not too severe recently, I try my best to censor myself near others, but I am blunt by nature a lot of the time if i'm mad, and I am self centered, a lot. Please tell me if i'm talking about myself too much, but I am better at socializing now than in the past, luckily :)
 
@@ -34,7 +32,7 @@ I am traumatized a bit. Do not interact if you're over 25 unless i int first. iw
 
 I am always free to socialise, though I may be a bit distant/zoned out, or mood swings may happen, i am really friendly, just sensitive a small bit. :Sweat: be aware though, and always IWC. read my rentry if you need to know any other information, or ask me! I'll answer best i can! I am also direct in talking, i will not censor things unless i know it may make someone uncomfortable, please tell me beforehand
 
-$${\color{#C29765}pony town}$$
+$${\color{#C29765}\textsf{pony town}}$$
 
 c/h freely, unless i'm with a friend, unless you ask us both. mainly with [@JAGERHEART](https://github.com/JAGERHEART) / [@ger-ita](https://github.com/ger-ita), and [@solstisGPT](https://github.com/solstisGPT), but it can be someone else occasionally. we are not partners, we are close friends. occasionally with [@whaminac](https://github.com/whamaniac) as well! very beloved people to us.
 
@@ -44,7 +42,7 @@ I'm asleep/offtab on pony town a lot, so expect me to be on stuff like among us,
 
 DNI DNI KARL UNLESS YPU WANT TO OWN UP TO YOUR SEXUAL TALK AND OTHER BAD THINGS. PLEASE. YOU BASICALLY TRAUMATIZED ME SLOWLY. /very heavily targeted towards a certain someone who has been #weeirdd toward me and my "moods".
 
-$${\color{#C29765}important}$$
+$${\color{#C29765}\textsf{important}}$$
 
 ⚠⚠ DO NOT INTERACT IF YOU HAVE A HISTORY OF/ARE ⚠⚠
 
