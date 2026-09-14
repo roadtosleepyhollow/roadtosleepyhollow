@@ -14,7 +14,7 @@ $${\color{#FBD0BB}\textsf{genderfloy mlm}}$$
 <summary>$${\color{#C29765}\textsf{extended}}$$</summary>
 ⠀
 <p align="right">
-<img width="450" src="https://files.catbox.moe/uylacp.png" alt="67">
+<img width="425" src="https://files.catbox.moe/uylacp.png" alt="67">
 
 $${\color{#C29765}\textsf{byi}}$$
 
