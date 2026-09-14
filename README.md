@@ -4,7 +4,7 @@
 <p align="center">
 <img height="320" src="https://files.catbox.moe/6vp7o7.png" align="right">
    
-$${\color{#C29765}\textsf{valentine ou ferry}}$$
+$${\color{#C29765}\textsf{valentine ou ferry}}$$ 
 
 $${\color{#FBD0BB}\textsf{genderfloy mlm}}$$
 
@@ -14,7 +14,7 @@ $${\color{#FBD0BB}\textsf{genderfloy mlm}}$$
 <summary>$${\color{#C29765}\textsf{extended}}$$</summary>
 ⠀
 <p align="right">
-<img width="500" src="https://files.catbox.moe/uylacp.png" alt="67">
+<img width="450" src="https://files.catbox.moe/uylacp.png" alt="67">
 
 $${\color{#C29765}\textsf{byi}}$$
 
